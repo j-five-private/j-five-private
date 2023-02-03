@@ -1,4 +1,4 @@
-# Serhii Kunnyk 6+
+# Serhii Kunnyk 5+
 
 
 ## About me:
